@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Void
+- 👀 I’m interested in ur mom
+- 🌱 I’m currently learning about you dad
+- 💞️ I’m looking to collaborate on anything but with you
+- 📫 How to reach me Void#3702 on dc
